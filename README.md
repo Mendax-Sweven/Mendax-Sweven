@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/48bdb846-ebec-4d89-ac3c-528e502c9332)
+![image](https://github.com/user-attachments/assets/e0f8bd0b-b64d-4ad8-a93d-1021718bf288)
+
 
 "One blade carries the weight of my past. The other, holds the key to my future..."
 
