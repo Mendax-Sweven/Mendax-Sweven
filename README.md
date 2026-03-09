@@ -1,5 +1,6 @@
+<p align="center">
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ff00c8&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-
+</p>
 "Am I a robot or a doll, am I anything at all?" 
 
 .               ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
@@ -11,8 +12,7 @@
       𝘚𝘪𝘯𝘤𝘦 𝘐'𝘮 𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 𝘰𝘳 𝘮𝘢𝘬𝘪𝘯𝘨 𝘱𝘰𝘯𝘪𝘦𝘴, 𝘐 𝘱𝘳𝘦𝘧𝘦𝘳 𝘸𝘩𝘪𝘴𝘱𝘦𝘳𝘴 𝘳𝘢𝘵𝘩𝘦𝘳 𝘵𝘩𝘢𝘯 𝘯𝘰𝘳𝘮𝘢𝘭 𝘤𝘩𝘢𝘵𝘴. 𝘐𝘧 𝘯𝘰𝘵, 𝘐 𝘤𝘰𝘶𝘭𝘥 𝘭𝘰𝘴𝘦 𝘺𝘰𝘶𝘳 𝘮𝘦𝘴𝘴𝘢𝘨𝘦... 𝘰𝘳 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘫𝘶𝘴𝘵 𝘴𝘦𝘯𝘥 𝘮𝘦 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘰𝘯 𝘮𝘺 𝘢𝘵𝘢𝘣𝘰𝘰𝘬 𝘰𝘳 𝘦𝘷𝘦𝘯 𝘢𝘥𝘥 𝘮𝘦 𝘰𝘯 
       𝘥𝘪𝘴𝘤𝘰𝘳𝘥, just ask before you do. 
       But PLEASE, do NOT interact if you're under 16 or accomplish any of the basic criteria. Thanks.    
-      
-      𝘈𝘭𝘴𝘰, 𝘱𝘭𝘦𝘢𝘴𝘦, 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘱𝘰𝘯𝘪𝘦𝘴 𝘢𝘯𝘥 𝘢𝘴𝘬 𝘧𝘰𝘳 𝘪𝘯𝘴𝘱iration. 𝘛𝘩𝘢𝘯𝘬𝘴.
+           𝘈𝘭𝘴𝘰, 𝘱𝘭𝘦𝘢𝘴𝘦, 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘱𝘰𝘯𝘪𝘦𝘴 𝘢𝘯𝘥 𝘢𝘴𝘬 𝘧𝘰𝘳 𝘪𝘯𝘴𝘱iration. 𝘛𝘩𝘢𝘯𝘬𝘴.
      
  ♰⊱ 𝘐𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴: 𝘚𝘰𝘮𝘦 𝘳𝘰𝘣𝘭𝘰𝘹 𝘨𝘢𝘮𝘦𝘴 (𝘔𝘢𝘪𝘯𝘭𝘺 𝘗𝘳𝘦𝘴𝘴𝘶𝘳𝘦, 𝘗𝘩𝘪𝘨𝘩𝘵𝘪𝘯𝘨!, Grace, Meleeniacs 𝘢𝘯𝘥 𝘒𝘢𝘭𝘦𝘪𝘥𝘰𝘴𝘤𝘰𝘱𝘦), 𝘋𝘦𝘷𝘪𝘭 𝘔𝘢𝘺 𝘊𝘳𝘺, 𝘙𝘦𝘥 𝘋𝘦𝘢𝘥 𝘙𝘦𝘥𝘦𝘮𝘱𝘵𝘪𝘰𝘯, 𝘍𝘪𝘯𝘢𝘭 𝘍𝘢𝘯𝘵𝘢𝘴𝘺, 𝘖𝘮𝘰𝘳𝘪, 𝘏𝘰𝘭𝘭𝘰𝘸 𝘒𝘯𝘪𝘨𝘩𝘵, Racheldrawsthis' games, 
      𝘈𝘳𝘬𝘯𝘪𝘨𝘩𝘵𝘴, 𝘝𝘰𝘭𝘵𝘳𝘰𝘯, 𝘛𝘩𝘦 𝘞𝘪𝘵𝘤𝘩𝘦𝘳, 𝘊𝘰𝘰𝘬𝘪𝘦 𝘙𝘶𝘯, 𝘢𝘯𝘥 𝘮𝘶𝘤𝘩 𝘮𝘰𝘳𝘦.
