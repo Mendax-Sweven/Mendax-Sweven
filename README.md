@@ -1,4 +1,5 @@
 <p align="center">
+ 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ff00c8&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 </p>
 "Am I a robot or a doll, am I anything at all?" 
