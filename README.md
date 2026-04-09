@@ -6,7 +6,7 @@
 
 .               ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
 
- ♰⊱ Hi, I'm 𝘊𝘩𝘢𝘳𝘢, but feel free to call me whatever you want! I'm comlpletely fine with nicknames. I go by He/they.
+ ♰⊱ Hihi, I'm Azra, but feel free to call me whatever you want! I'm comlpletely fine with nicknames. I go by He/they.
  
  ♰⊱ 𝘊+𝘏/𝘐𝘕𝘛 𝘪𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘸𝘦𝘭𝘤𝘰𝘮𝘦! I swear I don't bite.. 𝘌𝘯𝘨𝘭𝘪𝘴𝘩 𝘪𝘴 𝘯𝘰𝘵 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘭𝘢𝘯𝘨𝘶𝘢𝘨𝘦, 𝘣𝘶𝘵 𝘐'𝘮 𝘵𝘳𝘺𝘪𝘯𝘨 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘵𝘰 𝘣𝘦 𝘢𝘴 𝘤𝘰𝘮𝘱𝘳𝘦𝘩𝘦𝘯𝘴𝘪𝘣𝘭𝘦 𝘢𝘴 𝘱𝘰𝘴𝘴𝘪𝘣𝘭𝘦.
       𝘔𝘢𝘪𝘯𝘭𝘺 𝘢𝘯 𝘢𝘳𝘵𝘪𝘴𝘵, 𝘐 𝘫𝘶𝘴𝘵 𝘥𝘳𝘢𝘸 𝘸𝘩𝘢𝘵 𝘐 𝘭𝘪𝘬𝘦. 𝘖𝘵𝘩𝘦𝘳 𝘩𝘰𝘣𝘣𝘪𝘦𝘴 𝘐 𝘩𝘢𝘷𝘦: 𝘙𝘦𝘢𝘥𝘪𝘯𝘨, 𝘸𝘳𝘪𝘵𝘪𝘯𝘨, 𝘸𝘦𝘢𝘷𝘪𝘯𝘨, 𝘦𝘮𝘣𝘳𝘰𝘪𝘥𝘦𝘳𝘪𝘯𝘨, 𝘴𝘤𝘶𝘭𝘱𝘵𝘪𝘯𝘨, 𝘢𝘯𝘥 𝘱𝘭𝘢𝘺𝘪𝘯𝘨.
@@ -18,6 +18,6 @@
  ♰⊱ 𝘐𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴: 𝘚𝘰𝘮𝘦 𝘳𝘰𝘣𝘭𝘰𝘹 𝘨𝘢𝘮𝘦𝘴 (𝘔𝘢𝘪𝘯𝘭𝘺 𝘗𝘳𝘦𝘴𝘴𝘶𝘳𝘦, 𝘗𝘩𝘪𝘨𝘩𝘵𝘪𝘯𝘨!, Grace, Meleeniacs 𝘢𝘯𝘥 𝘒𝘢𝘭𝘦𝘪𝘥𝘰𝘴𝘤𝘰𝘱𝘦), 𝘋𝘦𝘷𝘪𝘭 𝘔𝘢𝘺 𝘊𝘳𝘺, 𝘙𝘦𝘥 𝘋𝘦𝘢𝘥 𝘙𝘦𝘥𝘦𝘮𝘱𝘵𝘪𝘰𝘯, 𝘍𝘪𝘯𝘢𝘭 𝘍𝘢𝘯𝘵𝘢𝘴𝘺, 𝘖𝘮𝘰𝘳𝘪, 𝘏𝘰𝘭𝘭𝘰𝘸 𝘒𝘯𝘪𝘨𝘩𝘵, Racheldrawsthis' games, 
      𝘈𝘳𝘬𝘯𝘪𝘨𝘩𝘵𝘴, 𝘝𝘰𝘭𝘵𝘳𝘰𝘯, 𝘛𝘩𝘦 𝘞𝘪𝘵𝘤𝘩𝘦𝘳, 𝘊𝘰𝘰𝘬𝘪𝘦 𝘙𝘶𝘯, 𝘢𝘯𝘥 𝘮𝘶𝘤𝘩 𝘮𝘰𝘳𝘦.
      
- ♰⊱ 𝘈𝘯𝘥 𝘯𝘰. 𝘔𝘺 𝘶𝘴𝘦𝘳𝘯𝘢𝘮𝘦 𝘥𝘰𝘦𝘴𝘯'𝘵 𝘤𝘰𝘮𝘦 𝘧𝘳𝘰𝘮 𝘜𝘯𝘥𝘦𝘳𝘵𝘢𝘭𝘦.
+ ♰⊱ If you wonder, I used to go by Chara, but I'd rather be called any other way. I don't mind that name if you already knew me from before this change though!     
  
  .               ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
