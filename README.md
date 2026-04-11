@@ -1,6 +1,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-"Rain or shine, my heart won't dry, so why can't I look away?" 
+"𝕴 𝖜𝖆𝖓𝖙 𝖙𝖍𝖎𝖓𝖌𝖘 𝖙𝖔 𝖇𝖊 𝖇𝖊𝖆𝖚𝖙𝖎𝖋𝖚𝖑." 
 
 .               ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
 
