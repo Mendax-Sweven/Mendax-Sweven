@@ -1,4 +1,5 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+
 "Rain or shine, my heart won't dry, so why can't I look away?" 
 
 .               ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
