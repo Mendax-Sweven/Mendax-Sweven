@@ -4,7 +4,7 @@
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark&border_radius=10)](https://github.com/kittinan/spotify-github-profile)
-<img width="345" height="153" alt="www-grabdit-app-pixelated-arknights-chen-wang_1" src="https://github.com/user-attachments/assets/88f58631-b2a7-44f8-8003-5b6c43582023" align="right"/>
+<img width="345" height="153" alt="wang" src="https://github.com/user-attachments/assets/83a3491f-c5ed-4ec2-b548-e37676ebd069" align="right"/>
 
 
 
