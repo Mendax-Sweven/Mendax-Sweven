@@ -1,4 +1,6 @@
-<img width="501" height="105" alt="flamingtext_com-206236453" src="https://github.com/user-attachments/assets/e9624015-bfd6-4ffc-9bf3-3ef0bcfdd87b" align="center" />
+<div align="center">
+𝐈𝐟 𝐰𝐞 𝐜𝐚𝐧'𝐭 𝐫𝐚𝐢𝐬𝐞 𝐭𝐡𝐞 𝐝𝐞𝐚𝐝, 𝐰𝐞'𝐫𝐞 𝐠𝐨𝐧𝐧𝐚 𝐫𝐚𝐢𝐬𝐞 𝐡𝐞𝐥𝐥 𝐢𝐧𝐬𝐭𝐞𝐚𝐝!
+</div>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark&border_radius=10)](https://github.com/kittinan/spotify-github-profile)
