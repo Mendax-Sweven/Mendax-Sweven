@@ -1,5 +1,5 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark&border_radius=10)](https://github.com/kittinan/spotify-github-profile)
-<img src="./assets/wang.gif" height=160 align="right">
+<img width="960" height="385" alt="www-grabdit-app-pixelated-arknights-chen-wang (1)" src="https://github.com/user-attachments/assets/0144543f-ae6c-47f3-bac3-82f6f2bfd528" />[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark&border_radius=10)](https://github.com/kittinan/spotify-github-profile)
+<img src="![Uploading www-grabdit-app-pixelated-arknights-chen-wang (1).gif…]()" height=160 align="right">
 
 "𝕴 𝖜𝖆𝖓𝖙 𝖙𝖍𝖎𝖓𝖌𝖘 𝖙𝖔 𝖇𝖊 𝖇𝖊𝖆𝖚𝖙𝖎𝖋𝖚𝖑." 
 
