@@ -4,7 +4,7 @@
 
 
 <img height=150 src="https://spotify-github-profile.kittinanx.com/api/view?uid=emmatruta16&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark&border_radius=10)](https://github.com/kittinan/spotify-github-profile"> 
-<img width="335" height="150" alt="wang" src=wang.gif align="right"/>
+<img height="150" alt="wang" src=wang.gif align="right"/>
 
 
 
