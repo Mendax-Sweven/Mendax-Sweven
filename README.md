@@ -39,7 +39,8 @@ Apex Legends - Arknights - Eddsworld - Titanfall - Fear and Hunger - Omori - Wit
 
 <details>
 <summary>Art credits!</summary>
-Character: Wang, from Arknights. https://x.com/fuwa3622/media  <img src=wang.gif height=100 align="right">
+The character in my readme is Wang, from Arknights. https://x.com/fuwa3622/media
+The character on my profile photo is X!Chara, from Underverse/X!Tale. https://danbooru.donmai.us/posts/11073943?q=xtale+
 </details>
 
 Again, this is still a work in progress. All typos/grammatical mistakes will be corrected later, my first language is not English. Thank you.
