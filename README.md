@@ -16,3 +16,18 @@ That's the basic information, feel free to interact with me! (But please, pay so
 
 ↓ I'll leave some more information about me below in the case you're interested in befriending me ↓ (WIP)
 </div> 
+
+<details>
+<summary>About Me</summary>
+Uhh hi
+</details>
+
+<details>
+<summary>DO NOT INTERACT IF:</summary>
+ehh Khloi dni /j
+</details>
+
+<details>
+<summary>Art credits!</summary>
+No I would NEVER credit artists!! (Let me finish my page first please)
+</details>
