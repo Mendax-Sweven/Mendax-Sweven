@@ -21,6 +21,7 @@ That's the basic information, feel free to interact with me! (But please, pay so
 <details>
 <summary>About Me</summary>
 Uhh hi
+ Anyway have my arknights status until I actually write something here https://www.krooster.com/u/r0tten_s0ul 
 </details>
 
 <details>
