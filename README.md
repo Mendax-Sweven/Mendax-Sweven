@@ -39,8 +39,7 @@ Apex Legends - Arknights - Eddsworld - Titanfall - Fear and Hunger - Omori - Wit
 
 <details>
 <summary>Art credits!</summary>
-Character: Wang, from Arknights. 
- [Link to the artist](https://x.com/fuwa3622/media)
+Character: Wang, from Arknights. [Artist creds](https://x.com/fuwa3622/media)
  <img src=wang.gif height=100 align="right">
 </details>
 
