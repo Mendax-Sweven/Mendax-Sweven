@@ -11,8 +11,7 @@
 <div align="center">
 ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
 
-
- ♰⊱ Hello, I'm Azrael (shortened to Azra) but feel free to call me however you want! I'm completely fine with nicknames, but I go strictly by he/they. I'm really active on Pony Town, and I can be found on both safe and +18 servers. You can find me on the safe server either on the Phighting! area or docks, and (almost) always on +18's spawn area. I do rarely get out of those zones, the only case is if I'm sitting with any friend placed somewhere else. 
+ ♰⊱ Hello, I'm Azrael (shortened to Azra), but feel free to call me however you want! I'm completely fine with nicknames, but I go strictly by he/they. I'm really active on Pony Town, and I can be found on both safe and +18 servers. You can find me on the safe server either on the Phighting! area or docks, and (almost) always on +18's spawn area. I do rarely get out of those zones, the only case is if I'm sitting with any friend placed somewhere else. 
 That's the basic information, feel free to interact with me! (But please, pay some attention to my DNI. Thanks ^^)
 
 ↓ I'll leave some more information about me below in the case you're interested in befriending me ↓ 
