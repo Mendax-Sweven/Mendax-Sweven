@@ -27,10 +27,12 @@ Uhh hi
 <ul><li>You accomplish any of the basic criteria. I think it's actually obvious.</li>
 <li>You're younger than 16. If I'm on the +18 server, MDNI in general. What are you doing there in the first place as a minor? </li>
 <li>You support any problematic creator/game/series/anything, such as Ghost and Pals, D4vd, Pressure, Grace, and many more.</li>
-<li>You fake any disorder, such as DID, BPD, PTSD/CPTSD, etcetera. There's people that's actually suffering those disorders, and if you find them "cool", fuck off.</li></ul>
+<li>You fake any disorder, such as DID, BPD, PTSD/CPTSD, etcetera. There's people that's actually suffering from those, and if you find them "cool", fuck off.</li></ul>
 </details>
 
 <details>
 <summary>Art credits!</summary>
 No I would NEVER credit artists!! (Let me finish my page first please)
 </details>
+
+Again, this is still a work in progress. All typos/grammatical mistakes will be corrected later, my first language is not English. Thank you.
