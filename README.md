@@ -39,7 +39,7 @@ Apex Legends - Arknights - Eddsworld - Titanfall - Fear and Hunger - Omori - Wit
 
 <details>
 <summary>Art credits!</summary>
-No I would NEVER credit artists!! (Let me finish my page first please)
+<img >
 </details>
 
 Again, this is still a work in progress. All typos/grammatical mistakes will be corrected later, my first language is not English. Thank you.
