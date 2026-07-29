@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#ffe0e6}{\textsf{# 𝐈𝐟 𝐰𝐞 𝐜𝐚𝐧'𝐭 𝐫𝐚𝐢𝐬𝐞 𝐭𝐡𝐞 𝐝𝐞𝐚𝐝, 𝐰𝐞'𝐫𝐞 𝐠𝐨𝐧𝐧𝐚 𝐫𝐚𝐢𝐬𝐞 𝐡𝐞𝐥𝐥 𝐢𝐧𝐬𝐭𝐞𝐚𝐝!}}$
+# 𝐈𝐟 𝐰𝐞 𝐜𝐚𝐧'𝐭 𝐫𝐚𝐢𝐬𝐞 𝐭𝐡𝐞 𝐝𝐞𝐚𝐝, 𝐰𝐞'𝐫𝐞 𝐠𝐨𝐧𝐧𝐚 𝐫𝐚𝐢𝐬𝐞 𝐡𝐞𝐥𝐥 𝐢𝐧𝐬𝐭𝐞𝐚𝐝!
 </div>
 
 
@@ -12,7 +12,7 @@ $\color{#ffe0e6}{\textsf{# 𝐈𝐟 𝐰𝐞 𝐜𝐚𝐧'𝐭 𝐫𝐚𝐢𝐬�
 <div align="center">
 ˚₊‧────────────────── ୧‿̩͙‿̩͙⊱༒︎༻⊱ꕀ⠀ ☽♱☾⠀ ꕀ⊰༺༒︎⊰‿̩͙‿̩͙୨ ──────────────────‧₊˚
 
- ♰⊱ Hello, I'm Azrael (shortened to Azra), but feel free to call me however you want! I'm completely fine with nicknames, but I go strictly by he/they. I'm really active on Pony Town, and I can be found on both safe and +18 servers. You can find me on the safe server either on the Phighting! area or docks, and (almost) always on +18's spawn area. I do rarely get out of those zones, the only case is if I'm sitting with any friend placed somewhere else. Either way, feel free to sit with me anytime!   
+$\color{#ffe0e6}{\textsf{♰⊱ Hello, I'm Azrael (shortened to Azra), but feel free to call me however you want! I'm completely fine with nicknames, but I go strictly by he/they. I'm really active on Pony Town, and I can be found on both safe and +18 servers. You can find me on the safe server either on the Phighting! area or docks, and (almost) always on +18's spawn area. I do rarely get out of those zones, the only case is if I'm sitting with any friend placed somewhere else. Either way, feel free to sit with me anytime!}}$   
 That's the basic information, feel free to interact with me! (But please, pay some attention to my DNI. Thanks ^^)
 
 $\color{#ffe0e6}{\textsf{Ignore this. This is a test }}$
