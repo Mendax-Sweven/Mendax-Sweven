@@ -24,7 +24,7 @@ $\color{#ffe0e6}{\textsf{↓ I'll leave some more information about me below in 
 <summary>$\color{#feb1c6}{\textsf{About Me }}$</summary>
 Uhh hi
  
- Anyway have my arknights status until I actually write something here https://www.krooster.com/u/r0tten_s0ul 
+ Anyway have my arknights status until I actually write something here https://www.krooster.com/u/r0tten_s0ul and yes I'm on my way to upgrade all operators except Magallan to level two. I have a deep hatred towards her.  
 </details>
 
 <details>
