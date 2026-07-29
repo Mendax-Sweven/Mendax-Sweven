@@ -22,6 +22,7 @@ $\color{#ffe0e6}{\textsf{↓ I'll leave some more information about me below in 
 <details>
 <summary>$\color{#feb1c6}{\textsf{About Me }}$</summary>
 Uhh hi
+ 
  Anyway have my arknights status until I actually write something here https://www.krooster.com/u/r0tten_s0ul 
 </details>
 
