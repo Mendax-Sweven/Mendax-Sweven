@@ -17,7 +17,7 @@ That's the basic information, feel free to interact with me! (But please, pay so
 
 $\color{#ffe0e6}{\textsf{Ignore this. This is a test }}$
 
-↓ I'll leave some more information about me below in the case you're interested in befriending me ↓ (WIP)
+$\color{#ffe0e6}{\textsf{↓ I'll leave some more information about me below in the case you're interested in befriending me ↓ (WIP) }}$
 </div> 
 
 <details>
