@@ -22,12 +22,12 @@ $\color{#ffe0e6}{\textsf{↓ I'll leave some more information about me below in 
 
 <details>
 <summary>$\color{#feb1c6}{\textsf{About Me }}$</summary>
-As I've said before, you can call me Azrael, or just anything you wish! I'm an artist with many other hobbies related to art, such as writing, embroidery, weaving, and formerly sculpting. Non related to art, my only hobby is reading... I love dark fantasy and philosophy mainly, in case you wonder. 
+$\color{#ffe0e6}{\textsf{♰⊱}}$As I've said before, you can call me Azrael, or just anything you wish! I'm an artist with many other hobbies related to art, such as writing, embroidery, weaving, and formerly sculpting. Non related to art, my only hobby is reading... I love dark fantasy and philosophy mainly, in case you wonder. 
 More related to Pony Town, I'm always open to chat with anyone anytime unless stated on my name, which is very rarely. My status doesn't mean anything, even if I have the 'busy' one. I love sitting with people, so if you see me around, feel free to sit next to me, behind, covering me, anything you wish! I'll be more than happy for that ^^.
 Also, I'm most of the times offtabbing, so it's better for you to whisper me if you want to say anything to me.. otherwise I might lose the message. Also, I will never ignore anyone on purpose. If I do not reply to you, that means I was busy, I'm sorry. 
 
  
-As extra information, I recommend reading 'no longer human', by Osamu Dazai, and my top 5 songs are:
+$\color{#ffe0e6}{\textsf{♰⊱}}$As extra information, I recommend reading 'no longer human', by Osamu Dazai, and my top 5 songs are:
 1. Everything goes on - Porter Robinson
 2. Weathergirl - Flavor Foley
 3. I THINK I KNOW!? - Apollo Flowerchild
