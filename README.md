@@ -27,7 +27,7 @@ More related to Pony Town, I'm always open to chat with anyone anytime unless st
 Also, I'm most of the times offtabbing, so it's better for you to whisper me if you want to say anything to me.. otherwise I might lose the message. Also, I will never ignore anyone on purpose. If I do not reply to you, that means I was busy, I'm sorry. 
 
  
-$\color{#ffe0e6}{\textsf{♰⊱}}$ As extra information, I recommend reading 'no longer human', by Osamu Dazai, and my top 5 songs are:
+$\color{#ffe0e6}{\textsf{♰⊱}}$ For extra information, I recommend reading 'no longer human', by Osamu Dazai, and my top 5 songs are:
 1. Everything goes on - Porter Robinson
 2. Weathergirl - Flavor Foley
 3. I THINK I KNOW!? - Apollo Flowerchild
