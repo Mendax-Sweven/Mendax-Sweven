@@ -45,6 +45,7 @@ Oh and have my arknights profile https://www.krooster.com/u/r0tten_s0ul
 <li>You're younger than 16. If I'm on the +18 server, MDNI in general. What are you doing there in the first place as a minor? </li>
 <li>You fake any disorder, such as DID, BPD, PTSD/CPTSD, etcetera. There's people that's actually suffering from those, and if you find them "cool", fuck off.</li>
 <li>You support or use genAI in any way, such as generating AI images, use any kind of AI chatbot, referring to both things like Character AI or ChatGPT.</li></ul>
+ If you have any doubt on any of my DNIs, feel free to ask.
 </details>
 
 <details>
