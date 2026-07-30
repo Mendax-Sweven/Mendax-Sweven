@@ -42,9 +42,13 @@ Oh and have my arknights profile https://www.krooster.com/u/r0tten_s0ul
 <details>
 <summary>$\color{#feb1c6}{\textsf{DO NOT INTERACT IF: }}$</summary>
 $\color{#ffe0e6}{\textsf{♰⊱}}$ You accomplish any of the basic criteria. I think it's actually obvious.
+ 
 $\color{#ffe0e6}{\textsf{♰⊱}}$ You're younger than 16. If I'm on the +18 server, MDNI in general. What are you doing there in the first place as a minor? 
+
 $\color{#ffe0e6}{\textsf{♰⊱}}$ You fake any disorder, such as DID, BPD, PTSD/CPTSD, etcetera. There's people that's actually suffering from those, and if you find them "cool", fuck off.
-$\color{#ffe0e6}{\textsf{♰⊱}}$ You support or use genAI in any way, such as generating AI images, use any kind of AI chatbot, referring to both things like Character AI or ChatGPT.
+
+$\color{#ffe0e6}{\textsf{♰⊱}}$ You support or use genAI.
+
  If you have any doubt on any of my DNIs, feel free to ask.
 </details>
 
