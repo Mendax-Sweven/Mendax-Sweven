@@ -1,4 +1,4 @@
-<img height="250" alt="Nulla." src=nulla.png align="right"/>
+<img height="200" alt="Nulla." src=nulla.png align="right"/>
 
 ㅤ
 
